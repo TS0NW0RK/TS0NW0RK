@@ -8,3 +8,5 @@ and yeah there is wiil be poc soon for my webkit vulnerability
 
 
 ### noizemc1love!
+
+### #stopwarinukraine
